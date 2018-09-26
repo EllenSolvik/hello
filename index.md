@@ -4,4 +4,4 @@ Good day to you tooo!
 
 Snaaaart middag - hurraaa!!!
 
-og bunpenger protesteeeerr :)
+og bompenger protesteeeerr :)
